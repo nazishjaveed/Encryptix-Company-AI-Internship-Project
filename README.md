@@ -1,0 +1,1 @@
+# Encryptix-Company-AI-Internship-Project
